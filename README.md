@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **darkranger008@gmail.com**
 
-- ⚡ Fun fact **I am a Asphault 9 legend (in my dreams)**
+- ⚡ Fun fact **I am an Asphault 9 legend Legend (in my dreams)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
